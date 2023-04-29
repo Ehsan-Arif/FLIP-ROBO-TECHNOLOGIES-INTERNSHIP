@@ -1,1 +1,1 @@
-# Flip Robo Technologies - INTERSHIP
+# Flip Robo Technologies - INTERNSHIP
